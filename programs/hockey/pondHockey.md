@@ -11,8 +11,9 @@ October 13, 2018 - February 9, 2019
 17 Weeks
 
 ## Ages
-* 5-8 (Tyke & Novice)
-* 9-12 (Atom & Peewee)
+* 5-8 (12:00pm - 1:00pm)
+* 8-10 (11:00am - 12:00pm)
+* 11-16 (10:00am - 11:00am)
 
 ## Bonuses
 * Jersey
